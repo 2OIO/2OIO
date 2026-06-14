@@ -1,6 +1,6 @@
 <div align="center">
   
-**TCC members iwec but not fully DNI because I say so** 
+**TCC members ⇨⇨⇨⇨⇨IWEC⇦⇦⇦⇦⇦ I don't wanna have problems with Internet police**
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/txt6.gif" width="270">
 
